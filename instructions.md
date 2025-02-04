@@ -5,4 +5,4 @@ den snurrar och man kan trampa
 kan man slå på, bom bom
 
 # Flaska
-med varm välling är gott gott
+med kall välling är bu hu..
